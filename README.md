@@ -98,7 +98,7 @@ Distributed under the MIT License. See `LICENSE` for more information.
 <!-- CONTACT -->
 ## Contact
 
-FounasFares - [@NcproDz](https://twitter.com/NcproDz) -  - 
+FounasFares - [@its._.fares](https://www.instagram.com/its._.fares) -  - 
 
 
 
